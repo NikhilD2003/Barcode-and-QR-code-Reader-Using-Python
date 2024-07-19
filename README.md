@@ -14,6 +14,9 @@ Barcodes and QR codes are very cool and interesting because they store informati
 4)![WhatsApp Image 2024-07-19 at 13 46 07_7b08a70d](https://github.com/user-attachments/assets/1a805140-add5-4841-bc48-af719271ca51)
 # Output:
 1)![WhatsApp Image 2024-07-19 at 13 29 05_155facd9](https://github.com/user-attachments/assets/9cdd76b8-1664-499c-a96b-9c0507ac3714)
-2)
-3)
-4)
+
+2)![WhatsApp Image 2024-07-19 at 13 52 27_7ea7762b](https://github.com/user-attachments/assets/51de7e03-dd00-4fbc-95cf-e055e0b2db7a)
+
+3)![WhatsApp Image 2024-07-19 at 13 53 12_53111c9f](https://github.com/user-attachments/assets/8238547d-bf48-475f-8a1d-7eb6cea990ff)
+
+4)![WhatsApp Image 2024-07-19 at 13 54 05_ebc217a4](https://github.com/user-attachments/assets/db73f4c3-8f0b-4fb2-89df-1428a8cdf2b6)
